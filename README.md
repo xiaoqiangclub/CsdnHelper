@@ -41,7 +41,7 @@
 - 注意：本软件并不能免费下载VIP/付费资源，如果有需要请自行付费后设置Cookie进行下载
 
 ## ⚓️ 相关链接 ⚓️ 
-- [下载地址](https://www.123pan.com/s/VP4vjv-KfQ0v.html)
+- [最新版下载地址](https://pan.xunlei.com/s/VNv5JgO_ViPDZJnmTOwB54m4A1?pwd=6aq3)
 
 ## 🎈 捐赠 🎈
 - [支持我](https://gitee.com/xiaoqiangclub/xiaoqiangapps/raw/master/images/xiaoqiangclub_ad.png)
